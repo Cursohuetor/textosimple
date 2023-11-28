@@ -1,0 +1,1 @@
+Documento de información sobre estos archivos
